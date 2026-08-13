@@ -1,6 +1,6 @@
 ### Hi there 👋🌐
 
-🔹I am Alejandro, 24 years old, passionate about technology and mindfulness. Excited to start a new stage in my life where I can demonstrate my abilities and learn together new skills related to technology and its information systems. 🔹
+🔹I am Alejandro, 25 years old, passionate about technology and mindfulness. Excited to start a new stage in my life where I can demonstrate my abilities and learn together new skills related to technology and its information systems. 🔹
 
 - 🔭 I’m currently working on Dspace Software
 - 🌱 I’m currently learning Web 3.0 and Deffi
